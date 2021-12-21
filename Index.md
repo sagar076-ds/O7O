@@ -31,3 +31,7 @@
 - Space(Cosmos)
 - Futures and options trading
 - Travelling
+
+
+### My blog link www.sagar320.blogspot.com
+### Reach out to me at sagar710ajmer@gmail.com
